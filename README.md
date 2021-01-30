@@ -1,0 +1,1 @@
+longillo's piece of code
